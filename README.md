@@ -7,3 +7,4 @@
 
 🚀 Comprometido, proactivo y listo para asumir nuevos retos.
 
+***Mi visualización a futuro es ser un mayister experimentado, teniendo iniciativa y liderazgo para llevar futuros proyectos hacia el éxito...***
